@@ -1,6 +1,7 @@
 ## 𝙷𝚒! 𝙸'𝚖 𝙺𝚛𝚒𝚜, 𝚊𝚗𝚍 𝚠𝚎𝚕𝚌𝚘𝚖𝚎 𝚝𝚘 𝚖𝚢 𝚙𝚛𝚘𝚏𝚒𝚕𝚎  
 
-                                                                    <img width="736" height="736" alt="1022457921663291516" src="https://github.com/user-attachments/assets/fc65cb80-f045-40bd-9d4c-06b29448fbd1" />
+<img width="736" height="736" alt="1022457921663291516" src="https://github.com/user-attachments/assets/36b33fd3-46ca-4aa7-adff-04c11769def7" /><img width="736" height="735" alt="189643834303000487" src="https://github.com/user-attachments/assets/f145f736-e1d5-489b-ab69-eff7a2f5c70d" />
+
 
 
 ~ 𝙼𝚢 𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜 𝚊𝚛𝚎 𝚂𝚑𝚎/𝙷𝚎𝚛
