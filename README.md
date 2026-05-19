@@ -1,6 +1,19 @@
 ## 𝙷𝚒! 𝙸'𝚖 𝙺𝚛𝚒𝚜, 𝚊𝚗𝚍 𝚠𝚎𝚕𝚌𝚘𝚖𝚎 𝚝𝚘 𝚖𝚢 𝚙𝚛𝚘𝚏𝚒𝚕𝚎 !!
 
+
+
+<img width="236" height="236" alt="download" src="https://github.com/user-attachments/assets/63a6a1e4-2a17-48f6-9df1-77de16fa5b04" />
+
+
+
+
+
+
 <img width="1080" height="520" alt="b8efa654-51f5-4a1e-b84b-743a99edc6cc" src="https://github.com/user-attachments/assets/4bc6eaf9-9728-40e8-a2fa-b09241bf077f" />
+
+
+
+
 
 
 
@@ -8,12 +21,16 @@
 
  
 ## ~ 𝙸 𝚖𝚘𝚜𝚝𝚕𝚢 𝚍𝚛𝚊𝚠, 𝚊𝚗𝚍 𝚎𝚡𝚙𝚕𝚘𝚛𝚎 𝚝𝚑𝚎 𝚒𝚗𝚝𝚎𝚛𝚗𝚎𝚝!
-                                                                                         <img width="235" height="235" alt="189643834303000487" src="https://github.com/user-attachments/assets/5088b8f4-6565-4b86-9ccb-12244d23bdc1" />
+                                                                                      
 
 ## ~ 𝙲 𝚡 𝙷 𝚒𝚜 𝚊𝚕𝚕𝚘𝚠𝚎𝚍 𝚠𝚑𝚎𝚗 𝚗𝚊𝚖𝚎 𝚜𝚊𝚢𝚜 𝚜𝚘!
 
 
 ## ~ 𝙲𝚘𝚖𝚎 𝚜𝚝𝚘𝚙 𝚋𝚢 𝚝𝚘 𝚜𝚊𝚢 𝚑𝚒!   
+
+
+
+
 
 
 
