@@ -7,15 +7,8 @@
 ## ~ 𝙼𝚢 𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜 𝚊𝚛𝚎 𝚂𝚑𝚎/𝙷𝚎𝚛
 
  
-## ~ 𝙸 𝚖𝚘𝚜𝚝𝚕𝚢 𝚍𝚛𝚊𝚠, 𝚊𝚗𝚍 𝚎𝚡𝚙𝚕𝚘𝚛𝚎 𝚝𝚑𝚎 𝚒𝚗𝚝𝚎𝚛𝚗𝚎𝚝! 
-
-
-
-
-<img width="235" height="235" alt="189643834303000487" src="https://github.com/user-attachments/assets/5088b8f4-6565-4b86-9ccb-12244d23bdc1" />
-        
-
-
+## ~ 𝙸 𝚖𝚘𝚜𝚝𝚕𝚢 𝚍𝚛𝚊𝚠, 𝚊𝚗𝚍 𝚎𝚡𝚙𝚕𝚘𝚛𝚎 𝚝𝚑𝚎 𝚒𝚗𝚝𝚎𝚛𝚗𝚎𝚝!
+                                                                                         <img width="235" height="235" alt="189643834303000487" src="https://github.com/user-attachments/assets/5088b8f4-6565-4b86-9ccb-12244d23bdc1" />
 
 ## ~ 𝙲 𝚡 𝙷 𝚒𝚜 𝚊𝚕𝚕𝚘𝚠𝚎𝚍 𝚠𝚑𝚎𝚗 𝚗𝚊𝚖𝚎 𝚜𝚊𝚢𝚜 𝚜𝚘!
 
