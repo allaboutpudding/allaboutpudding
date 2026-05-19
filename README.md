@@ -1,8 +1,4 @@
-## 𝙷𝚒! 𝙸'𝚖 𝙺𝚛𝚒𝚜, 𝚊𝚗𝚍 𝚠𝚎𝚕𝚌𝚘𝚖𝚎 𝚝𝚘 𝚖𝚢 𝚙𝚛𝚘𝚏𝚒𝚕𝚎  
-
-<img width="736" height="736" alt="1022457921663291516" src="https://github.com/user-attachments/assets/36b33fd3-46ca-4aa7-adff-04c11769def7" /><img width="736" height="735" alt="189643834303000487" src="https://github.com/user-attachments/assets/f145f736-e1d5-489b-ab69-eff7a2f5c70d" />
-
-
+## 𝙷𝚒! 𝙸'𝚖 𝙺𝚛𝚒𝚜, 𝚊𝚗𝚍 𝚠𝚎𝚕𝚌𝚘𝚖𝚎 𝚝𝚘 𝚖𝚢 𝚙𝚛𝚘𝚏𝚒𝚕𝚎 !!
 
 ~ 𝙼𝚢 𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜 𝚊𝚛𝚎 𝚂𝚑𝚎/𝙷𝚎𝚛
  
@@ -10,7 +6,7 @@
 
 ~ 𝙲 𝚡 𝙷 𝚒𝚜 𝚊𝚕𝚕𝚘𝚠𝚎𝚍 𝚠𝚑𝚎𝚗 𝚗𝚊𝚖𝚎 𝚜𝚊𝚢𝚜 𝚜𝚘!
 
-~ 𝙲𝚘𝚖𝚎 𝚜𝚝𝚘𝚙 𝚋𝚢 𝚝𝚘 𝚜𝚊𝚢 𝚑𝚒!
+~ 𝙲𝚘𝚖𝚎 𝚜𝚝𝚘𝚙 𝚋𝚢 𝚝𝚘 𝚜𝚊𝚢 𝚑𝚒!   
 
+<img width="936" height="527" alt="2000s vibes background" src="https://github.com/user-attachments/assets/ec037720-7a9d-43d4-9991-eea89fda2f13" />
 
-<img width="736" height="414" alt="630715122886304117" src="https://github.com/user-attachments/assets/67b0083f-29cb-453b-b265-abd5dc1493bd" />
