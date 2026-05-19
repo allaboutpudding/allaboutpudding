@@ -2,8 +2,8 @@
 
 
 
-<img width="336" height="336" alt="download" src="https://github.com/user-attachments/assets/63a6a1e4-2a17-48f6-9df1-77de16fa5b04"<img width="336" height="336" alt="1103241239991683934" src="https://github.com/user-attachments/assets/c011f338-be14-4107-8f0e-272d81104408" />
- />
+ <img width="1080" height="376" alt="993606736538670159" src="https://github.com/user-attachments/assets/e0bb483d-4d9c-4ef2-af7c-78d71f952289" />
+
 
 
 
