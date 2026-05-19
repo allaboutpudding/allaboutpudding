@@ -16,6 +16,12 @@
 
 
 
+<img width="1080" height="236" alt="ིྀ︶︶֪︶ ୨ৎ︶֪︶︶ ིྀ" src="https://github.com/user-attachments/assets/c2517328-8d70-45ff-be40-ceda10fe9034" />
+
+
+
+
+
 
 
 ## ~ 𝙼𝚢 𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜 𝚊𝚛𝚎 𝚂𝚑𝚎/𝙷𝚎𝚛
@@ -33,7 +39,24 @@
 
 
 
+<img width="1080" height="236" alt="ིྀ︶︶֪︶ ୨ৎ︶֪︶︶ ིྀ" src="https://github.com/user-attachments/assets/c2517328-8d70-45ff-be40-ceda10fe9034" />
+
+
+
+
 
 
 <img width="1080" height="520" alt="2000s vibes background" src="https://github.com/user-attachments/assets/ec037720-7a9d-43d4-9991-eea89fda2f13" />
+
+
+
+
+ <img width="1080" height="376" alt="993606736538670159" src="https://github.com/user-attachments/assets/e0bb483d-4d9c-4ef2-af7c-78d71f952289" />
+
+
+
+
+
+
+
 
