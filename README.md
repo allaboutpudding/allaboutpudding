@@ -68,7 +68,7 @@ allaboutpudding.atabook.org
  <p/>
 <img width="1080" height="136" alt="ིྀ︶︶֪︶ ୨ৎ︶֪︶︶ ིྀ" src="https://github.com/user-attachments/assets/c2517328-8d70-45ff-be40-ceda10fe9034" />
 <img width="1080" height="420" alt="miku yee" src="https://github.com/user-attachments/assets/97751e72-6703-440e-9557-0a9b28987ce3" />
-<img width="1080" height="420" alt="50032245855642003" src="https://github.com/user-attachments/assets/4e3380b4-cf4a-43f2-bad7-828290641b26" />
+
 
 
 
