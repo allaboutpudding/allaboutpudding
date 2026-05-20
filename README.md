@@ -1,5 +1,4 @@
 ## 𝑯𝒊 𝒕𝒉𝒆𝒓𝒆! 𝑾𝒆𝒍𝒄𝒐𝒎𝒆 𝒕𝒐 𝑲𝒓𝒊𝒔.𝒆𝒙𝒆'𝒔 𝑮𝒆𝒕-𝑻𝒐-𝑲𝒏𝒐𝒘-𝑴𝒆! 
-<img width="1080" height="420" alt="117586240265343032" src="https://github.com/user-attachments/assets/7de86398-f3d5-4ef1-9eb2-5ecb09b72b54" />
 <p align=middle>
 <img width="1080" height="420" alt="Blue Welcome Banner" src="https://github.com/user-attachments/assets/1f6d0fa9-ffd3-45f3-8012-a99c4862b23d" />
 <img width="1080" height="136" alt="ིྀ︶︶֪︶ ୨ৎ︶֪︶︶ ིྀ" src="https://github.com/user-attachments/assets/c2517328-8d70-45ff-be40-ceda10fe9034" 
