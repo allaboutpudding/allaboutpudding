@@ -61,8 +61,8 @@ Patreon- , ' вιттєяѕωєєт ' ,
 ~ ps, all of my images are from pinterest, credits to the rightful owners! :3
  <p align=middle>
 ~ ...... ---- -..... .--...-....----. .-...--....-.--. -.........--..-- .--..-....-.... -..--- -.... ---.-- -.......-..-..-....-.-..-.-.-- -.-..-..-.... .....-...---..-....-..-.----..-- -.-----..- ...-...-...-.. --..-...-. ..-.--. -..... .-...-.--.-.-- ..-. ---.-.-....-. ---- ..-...-.-.. ---..-- .--.....-- -......... -.-..-- ....--.--...-.-.-- 
-<p align=middle>
-allaboutpudding.atabook.org
+<p align=middle alt="Sign Here!">
+https://allaboutpudding.atabook.org/
   
 </details>
  <p/>
