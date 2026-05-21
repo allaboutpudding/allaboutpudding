@@ -47,12 +47,13 @@ absolutely! here are things that you can get to know about me!
 <details align="middle">
   <summary>See More!</summary>
 
+
  <p align=middle>
 ~ Commissions opening soon muehe 🤯
 <p align=middle>
-DC- _xoxo.kris
+DC- _xoxo.kris, кяιѕ - クリス ソース
 <p align=middle>
-Patreon- , ' вιттєяѕωєєт ' , 
+Patreon- NutellaSpreadKris, , ' вιттєяѕωєєт ' , 
 <p align=middle>
  <p float=left>
 <img width="420" height="340" src="https://github.com/user-attachments/assets/7254b4a5-8885-4aaa-9fc7-efcf07bbccac" />
