@@ -42,6 +42,7 @@ absolutely! here are things that you can get to know about me!
 <img width="136" height="136" src="https://github.com/user-attachments/assets/23376893-3ae2-488a-9511-48cc53c30a9d" /> 
 <img width="136" height="136" src="https://github.com/user-attachments/assets/62c088ed-c43b-480c-b515-6958766e2bdd" />
 <img width="136" height="136" src="https://github.com/user-attachments/assets/999c88d3-3e8c-4e1b-8e83-6ac8623a9d94" />
+ 
 <p align="middle">
 <details>
   <summary>REMINDERS!</summary>
