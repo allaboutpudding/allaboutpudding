@@ -44,8 +44,8 @@ absolutely! here are things that you can get to know about me!
 <img width="136" height="136" src="https://github.com/user-attachments/assets/999c88d3-3e8c-4e1b-8e83-6ac8623a9d94" />
  
 <p align="middle">
-<details>
-  <p align="middle" summary>See More!</summary>
+<details align="middle">
+  <summary>See More!</summary>
  <p align=middle>
 ~ I don't do commissions, but I will soon!! may the Kris progressively get better in coding and programming! :D
 <p align=middle>
