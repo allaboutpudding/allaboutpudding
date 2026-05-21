@@ -46,8 +46,9 @@ absolutely! here are things that you can get to know about me!
 <p align="middle">
 <details align="middle">
   <summary>See More!</summary>
+
  <p align=middle>
-~ I don't do commissions, but I will soon!! may the Kris progressively get better in coding and programming! :D
+~ Commissions opening soon muehe 🤯
 <p align=middle>
 DC- _xoxo.kris
 <p align=middle>
