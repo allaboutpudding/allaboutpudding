@@ -1,6 +1,5 @@
 ## 𝑯𝒊 𝒕𝒉𝒆𝒓𝒆! 𝑾𝒆𝒍𝒄𝒐𝒎𝒆 𝒕𝒐 𝑲𝒓𝒊𝒔.𝒆𝒙𝒆'𝒔 𝑮𝒆𝒕-𝑻𝒐-𝑲𝒏𝒐𝒘-𝑴𝒆! 
 <p align=middle>
-<img width="1080" height="420" alt="Blue Welcome Banner" src="https://github.com/user-attachments/assets/1f6d0fa9-ffd3-45f3-8012-a99c4862b23d" />
 <img width="1080" height="136" alt="ིྀ︶︶֪︶ ୨ৎ︶֪︶︶ ིྀ" src="https://github.com/user-attachments/assets/c2517328-8d70-45ff-be40-ceda10fe9034" 
 
  <p float="left">
@@ -67,7 +66,7 @@ https://allaboutpudding.atabook.org/
 </details>
  <p/>
 <img width="1080" height="136" alt="ིྀ︶︶֪︶ ୨ৎ︶֪︶︶ ིྀ" src="https://github.com/user-attachments/assets/c2517328-8d70-45ff-be40-ceda10fe9034" />
-<img width="1080" height="420" alt="miku yee" src="https://github.com/user-attachments/assets/97751e72-6703-440e-9557-0a9b28987ce3" />
+
 
 
 
